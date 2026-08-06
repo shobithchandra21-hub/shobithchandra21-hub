@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hi, I am Shobith Gowda MC:
 I'am and electronics and communication engineering student<br>
 
 
